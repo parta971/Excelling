@@ -1,2 +1,2 @@
-# Excelling-
+# Excelling
 Just excelling through excel!
